@@ -50,6 +50,7 @@
 ### 📩 Connect With Me
 
 🔗 LinkedIn: www.linkedin.com/in/akshat-prajapati-a89432181
+
 📌 Fiverr / Upwork Links:
 https://www.fiverr.com/s/xXg9yPD
 https://www.upwork.com/freelancers/~014899e2c1e2bd89fa?mp_source=share
